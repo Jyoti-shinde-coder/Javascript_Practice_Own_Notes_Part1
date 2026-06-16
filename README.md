@@ -1,0 +1,1 @@
+# Javascript_Practice_Own_-Notes_Part1
